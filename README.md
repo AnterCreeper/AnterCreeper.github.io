@@ -1,1 +1,1 @@
-### Here is AnterCreeper's Homepages. Welcome!
+### Here is AnterCreeper's Homepages.
